@@ -1,0 +1,1 @@
+Blog of daiyy2009.

@@ -1,1 +1,1 @@
-Blog of daiyy2009.
+Blog of daiyy2009
